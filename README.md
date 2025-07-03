@@ -3,7 +3,7 @@
 - 👀 I’m interested in Musical and Coding
 - 🌱 I’m currently learning C# and History of musical
 - 💞️ I’m looking to collaborate on A good and open society for new learning
-- 📫 How to reach me tonkoranitpalee@gmail.com!
+- 📫 How to reach me paleekoranit@gmail.com!
 - 😄 Pronouns: Sudsakhorn
 - ⚡ Fun fact: Emmm my eye xD
   
